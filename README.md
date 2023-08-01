@@ -1,8 +1,9 @@
 -  Hi, I’m zxcwsdd, currently a undergraduate student major in AI,in a normal university.
--  I’m interested in chinese chess,tennis,Programming Competition,Shakespeare.
+-  I’m interested in chinese chess,tennis,piano，Programming Competition,Shakespeare.
 -  I like cartoon and animation such as eva,Naruto,Detective Conan
 -  I got the first place in our college's first exam( I'm One of the first batch of students,1/78)
--  I got the first prize in  school 'chinese chess  competition(second place,team honor) 
+-  I got the first prize in  school 'chinese chess  competition(second place,team honor)
+-  I have passed CET-4,prepare for CET-6,dreaming becoming entrepreneurs
 -  In the class I'm an Representative of computer network course(teacher: li zhen)
 -  I am the monitor of the sociology research course(teacher:gong shenghua)
 -  I love to read and write poem ,and I write some poems  in zhihu.
