@@ -10,8 +10,8 @@
 -  I love to read and write poem ,and I write some poems  in zhihu.
 -  https://zhuanlan.zhihu.com/p/530978461    https://zhuanlan.zhihu.com/p/540865515
 -  https://zhuanlan.zhihu.com/p/549118559    https://zhuanlan.zhihu.com/p/560278259
--  I am a game area up at bilibili(not active).
--  If you want to have  cooperate with me welcome to send message in zhihu,thanks!
+-  I am a game area up at bilibili，mainly about  Legends of the Three Kingdoms (not active).
+-  These day i always doubt about my ability,when i saw other's success, I feel my own powerlessness。but othervision,that prove i'm  not suitable for it.
 <!---
 zxcwsdd/zxcwsdd is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
